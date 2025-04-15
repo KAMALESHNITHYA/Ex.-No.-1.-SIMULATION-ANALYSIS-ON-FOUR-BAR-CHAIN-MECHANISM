@@ -47,7 +47,7 @@
 
 ![Screenshot (519)](https://github.com/user-attachments/assets/4708f081-9d48-425c-b4d6-6d1275941b31)
 <br>
-![Uploading Screenshot (520).png…]()
+![Screenshot (520)](https://github.com/user-attachments/assets/177a3574-1736-406d-af33-42f78ea244c5)
 
 
 
